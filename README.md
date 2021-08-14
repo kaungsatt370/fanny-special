@@ -1,1 +1,1 @@
-# fanny-special
+# fanny-lightborn
